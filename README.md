@@ -2,9 +2,9 @@
 
  ✧ it . that thing . he ✧
 
- ageless . 07.09
+ ageless ( coffee-fueled deadlines + tax season survivor ) . 07.09
 
-i love my boyfriend!!!!!! i love valentine!!!!!!
+ i love valentine!!!!!!
 
 ♡
 
