@@ -2,7 +2,7 @@
 
  ✧ it . that thing . he ✧
 
- ageless ( coffee-fueled deadlines + tax season survivor ) . 07.09
+ ageless ( tax season survivor ) . 07.09
 
 
 ♡
@@ -11,13 +11,13 @@
 
  Current Interests ;
 
-roblox, roblox admins, phighting!, forsaken, madness combat, old tech and computers, bugs ( specifically beetles ), and a BUNCH more ( too lazy to list )
+roblox, roblox admins, phighting!, MY LITTLE PONY (FIM), madness combat, old tech and computers, bugs ( specifically beetles ), and a BUNCH more ( too lazy to list )
 
 ⌗
 
 mainly active in 18+ and pg 2 server
 
-Main Status/es:
+Status/es:
 
 🟢 Online (rarely use) :
 
