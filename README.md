@@ -4,7 +4,6 @@
 
  ageless ( coffee-fueled deadlines + tax season survivor ) . 07.09
 
- i love valentine!!!!!!
 
 ♡
 
