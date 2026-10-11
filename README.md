@@ -2,7 +2,7 @@
 
  ✧ it . that thing . he ✧
 
- ageless ( tax season survivor ) . 07.09
+ ageless ( ADULT ) . 07.09
 
 
 ♡
